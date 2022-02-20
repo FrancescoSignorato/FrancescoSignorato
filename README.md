@@ -7,4 +7,4 @@
 
 Drop me a message on LinkedIn www.linkedin.com/in/francesco-signorato if you want to connect!
 
-Cheers.
+Cheers 🚀
