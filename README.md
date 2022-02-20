@@ -5,4 +5,6 @@
 - 🌱 Currently learning how to create something huge
 - 💬 Ask me about #startups, #machineLearning and #hardware
 
-Drop me a message on LinkedIn www.linkedin.com/in/francesco-signorato if you want to connect
+Drop me a message on LinkedIn www.linkedin.com/in/francesco-signorato if you want to connect!
+
+Cheers.
